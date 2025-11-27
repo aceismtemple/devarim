@@ -1,8 +1,3 @@
-### What does the verse means? does he mean a literal new heavens and a new earth like he will destroy the former or he will create a new chapter of within the old heaven and old earth?
-
-
----
-
 ## **Isaiah 65:17 — “For behold, I create new heavens and a new earth…”**
 
 When God speaks these words through Isaiah, He is giving Israel a vision of complete renewal — a future reality so transformed that the old sorrows, failures, and troubles will not even come to mind.
