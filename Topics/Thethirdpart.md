@@ -2,8 +2,6 @@ Addressing **Zechariah 13:8–9** as referring to **“the whole land”**—not
 
 ---
 
-## **Continuation (Old Testament Only)**
-
 **Zechariah 13:8–9**
 
 > *“And it shall come to pass in all the land, saith the LORD, two parts therein shall be cut off and die; but the third shall be left therein.
