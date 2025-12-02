@@ -2,11 +2,11 @@
 
 ### **1. Worship God Alone**
 
-No other gods but the Most High, the God of Israel, the God of Truth
+Worship the Most High, the God of Israel, the God of Truth
 
 ### **2. Do Not Worship Idols**
 
-Do not make or worship idols or images
+Do not make or worship idols or images.
 
 ### **3. Do Not Blaspheme**
 
@@ -36,6 +36,6 @@ Uphold truth, especially in judgment
 
 Setup or abide fair laws and systems of justice. 
 
-### **10. Respect Animals**
+### **10. Do Not Mistreat Animals**
 
 No cruelty. Includes eating meat taken from an animal that is still alive.
