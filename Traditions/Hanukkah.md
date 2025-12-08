@@ -182,19 +182,19 @@ You say **only the first two blessings**.
 
 *Baruch Atah Adonai Eloheinu Melech HaOlam, asher kid’shanu b’mitzvotav v’tzivanu l’hadlik ner shel Chanukah.*
 
-*Blessed are You, Lord our God, King of the universe, who has sanctified us with His commandments and commanded us to light the Hanukkah lights.*
+*Blessed are You, Adonai Eloheinu, King of the universe, who has sanctified us with His commandments and commanded us to light the Hanukkah lights.*
 
 **Blessing 2 (for the miracles):**
 
 *Baruch Atah Adonai Eloheinu Melech HaOlam, she’asah nisim la’avoteinu, bayamim haheim bazman hazeh.*
 
-*Blessed are You, Lord our God, King of the universe, who performed miracles for our ancestors in those days, at this time.*
+*Blessed are You, Adonai Eloheinu, King of the universe, who performed miracles for our ancestors in those days, at this time.*
 
 **First night only — Blessing 3 (Shehecheyanu):**
 
 *Baruch Atah Adonai Eloheinu Melech HaOlam, shehecheyanu v’kiy’manu v’higianu lazman hazeh.*
 
-*Blessed are You, Lord our God, King of the universe, who has kept us alive, sustained us, and enabled us to reach this season*
+*Blessed are You, Adonai Eloheinu, King of the universe, who has kept us alive, sustained us, and enabled us to reach this season*
 
 
 ---
