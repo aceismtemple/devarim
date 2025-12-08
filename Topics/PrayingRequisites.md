@@ -5,7 +5,7 @@ In **1 Kings 17:1**, Elijah declares to King Ahab that **there will be no rain**
   > “As the Lord, the God of Israel, lives, whom I serve, there will be neither dew nor rain in the next few years except at my word.”
 
 
-Elijah stood before King Ahab not with earthly authority but with spiritual authority. His confidence came from being a man who walked in obedience to the Lord. Elijah could speak this way because he stood before God—his life was aligned with God’s will. God listens to those who honor Him.
+Elijah stood before King Ahab not with earthly authority but with spiritual authority. His confidence came from being a man who walked in obedience to the Lord. Elijah could speak this way because he stood before HaShem—his life was aligned with HaShem’s will. HaShem listens to those who honor Him.
 
 
 For us to pray properly—like Elijah—we must first **set things right in our hearts and relationships**. Elijah was bold before HaShem because his heart was aligned with HaShem's will.
