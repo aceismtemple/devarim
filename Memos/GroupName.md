@@ -8,7 +8,9 @@ Effective Immediately:
 
 The religious group shall be known as:
 
-## People of the Saints of the Most High
+## Kadoshim Elyon
+## Saints of the Most High
+## Banal ng Kataastaasan
 
 All official documents, communications, records, and related materials shall use this designation henceforth.
 
