@@ -65,3 +65,68 @@ If we want HaShem to hear our prayers:
   “Turn ye even to me with all your heart” (Joel 2:12)
 
 Then, like Elijah, we can stand before HaShem **with confidence**, because our hearts are clean and our relationships restored.
+
+---
+
+# Lets see another example from Daniel
+
+### **Daniel 9:21 (KJV)**
+
+> *“Yea, whiles I was speaking in prayer, even the man Gabriel, whom I had seen in the vision at the beginning, being caused to fly swiftly, touched me about the time of the evening oblation.”*
+
+ Daniel 9 contains one of the most remarkable examples: as Daniel is still praying, the angel Gabriel arrives *swiftly*. A response from heaven before the prayer is even finished.
+
+But why?
+What was it about Daniel that aligned him so closely with God’s heart?
+
+Let us look not at his words alone, but at the **condition of his heart**, the **posture of his soul**, and the **discipline of his life**.
+
+---
+
+## **DANIEL’S POSTURE OF HUMILITY DREW GOD NEAR**
+
+### *Daniel 9:3 — “I set my face unto the Lord… with fasting, and sackcloth, and ashes.”*
+
+Daniel approached God not with pride, not with entitlement, but with deep humility. Fasting, sackcloth, and ashes were signs of genuine brokenness and reverence before God.
+
+Throughout the Old Testament, God is consistently drawn to humility:
+
+### **Psalm 51:17**
+
+> *“A broken and a contrite heart, O God, thou wilt not despise.”*
+
+Daniel’s heart was in the condition God never despises—contrite, surrendered, broken before Him.
+
+Heaven responds to humble hearts.
+
+---
+
+## **DANIEL’S FASTING OPENED A CLEAR CHANNEL TO HEAVEN**
+
+Fasting does not force God to act.
+But fasting **positions us** to hear, to see, and to receive.
+
+Daniel’s fasting wasn’t merely abstaining from food—it was an attitude of surrender.
+He denied himself to give God full attention.
+
+The Old Testament reveals the power of fasting:
+
+### **Joel 2:12**
+
+> *“Turn ye even to me with all your heart, and with fasting…”*
+
+Fasting is turning **with all the heart**—and Daniel did exactly that.
+
+And heaven moved swiftly.
+
+
+---
+
+## **DANIEL’S RIGHTEOUS LIFE MADE HIS PRAYERS POWERFUL**
+
+Daniel wasn’t a casual believer.
+He lived consistently, faithfully, and righteously—even in Babylon.
+
+### **Daniel 6:10**
+
+> *“…he kneeled… three times a day, and prayed…”*
