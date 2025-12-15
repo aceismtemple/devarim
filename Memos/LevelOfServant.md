@@ -15,6 +15,7 @@ The Worker is responsible for faithful labor and service within the community. T
 
 * Carry out assigned work with excellence
 * Support the needs of the community
+* Teaches children
 * Maintain order in areas of responsibility
 * Report activities and challenges to Elders
 
