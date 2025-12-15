@@ -15,7 +15,8 @@ The Worker is responsible for faithful labor and service within the community. T
 
 * Carry out assigned work with excellence
 * Support the needs of the community
-* Maintain order and cleanliness in areas of responsibility
+* Maintain order in areas of responsibility
+* Report activities and challenges to Elders
 
 
 ---
@@ -24,7 +25,7 @@ The Worker is responsible for faithful labor and service within the community. T
 
 ### **Role Description**
 
-The Elder serves as a guardian of wisdom, order, and moral authority within the community. Elders provide leadership through example, counsel, and righteous judgment.
+The Elder serves as a guardian of wisdom and order within the community. Elders provide leadership through example, counsel, and righteous judgment. 
 
 ### **Requirements**
 
@@ -41,6 +42,8 @@ The Elder serves as a guardian of wisdom, order, and moral authority within the 
 * Help resolve disputes within the community
 * Support and oversee workers
 * Represent the community in matters of judgment
+* Organize regional preaching events and outreach
+
 
 ---
 
@@ -48,7 +51,7 @@ The Elder serves as a guardian of wisdom, order, and moral authority within the 
 
 ### **Role Description**
 
-The Sage is entrusted with the teaching, interpretation, and preservation of wisdom. This role focuses on deep understanding of Scripture, discernment, and instruction.
+The Sage is entrusted with the teaching, interpretation, and preservation of wisdom. This role focuses on deep understanding of Scripture, discernment, and instruction. Gives vision, doctrine, and overall direction.
 
 ### **Requirements**
 
@@ -64,3 +67,7 @@ The Sage is entrusted with the teaching, interpretation, and preservation of wis
 * Advise elders in complex matters
 * Preserve doctrinal accuracy and tradition
 * Discern spiritual matters and provide insight
+* Define teachings, doctrine, and preaching standards
+* Set long-term goals and mission strategy
+* Approve official materials (lessons, sermons, publications)
+* Oversee regional and local offices
