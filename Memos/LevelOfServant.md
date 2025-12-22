@@ -48,7 +48,7 @@ The Elder serves as a guardian of wisdom and order within the community. Elders 
 
 ---
 
-## **3. Sage (חכם – *Ḥakham*)**
+## **3. Sage (חכם – *Ḥakham*) **
 
 ### **Role Description**
 
@@ -61,6 +61,7 @@ The Sage is entrusted with the teaching, interpretation, and preservation of wis
 * Recognized for wisdom and discernment
 * Able to teach clearly and faithfully
 * Humble before God and the community
+* Must be a male
 
 ### **Responsibilities**
 
