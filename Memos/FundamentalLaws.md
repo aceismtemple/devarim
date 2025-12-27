@@ -112,6 +112,7 @@ Below is a **traditional list of 30 Noahide commandments** as taught by **some r
 
 1. Do not eat blood
 2. Do not participate in pagan events
-3. Do not take illegal drugs
-4. Do not lie or bear false witness
-
+3. Do not support pagan gods
+4. Do not take illegal drugs
+5. Do not lie or bear false witness
+6. Do not participate in harmful genetic modification
