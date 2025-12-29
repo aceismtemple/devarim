@@ -23,11 +23,14 @@ The Psalmist shows this truth:
 Here we learn that **confession opens the way for forgiveness**.
 When we hide sin, our prayers are hindered—but when we confess, HaShem restores.
 
-The Old Testament reinforces this principle:
+Solomon reinforces this principle:
 
 > **“He that covereth his sins shall not prosper:
 > but whoso confesseth and forsaketh them shall have mercy.”**
 > — *Proverbs 28:13*
+
+> **" The LORD detests the sacrifice of the wicked, but the prayer of the upright pleases him."**
+> — *Proverbs 15:8*
 
 So, before we pray like Elijah, we must:
 
