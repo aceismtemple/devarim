@@ -2,28 +2,31 @@
 
 ### **1. Going to Worship**
 
-* **Modesty is key**: Avoid revealing clothing. Think below-the-knee length skirts/dresses or long pants (not tight / snug or not see-through), shirts that cover shoulders (not see-through).
-* Avoid torned items. Avoid T-shirts with offensive slogans, shorts, or ripped jeans are usually discouraged.
+* Avoid revealing clothing. 
+* Observe shirts that cover shoulders. Shirts/dress should not be see-through.
+* Observe below-the-knee length skirts/dresses or long pants (not tight / snug or not see-through)
+* Avoid torned items. 
+* Avoid T-shirts with offensive slogans, shorts, or ripped jeans.
 * **Accessories & makeup**: Keep it minimal; avoid flashy or distracting jewelry.
 
 ---
 
 ### **2. Events**
 
+* Avoid revealing clothing.
 * Match the formality of the event.
-* Avoid overly flashy or revealing outfits unless the event is casual/fun.
-* Neatness always matters — even casual clothes should be clean and tidy.
-* **Accessories & makeup**: avoid luxurious jewelry.
+* **Accessories**: avoid luxurious jewelry.
 ---
 
 
 ### **3. At Home**
 
-* Do not wear indecent clothing if there are people of the opposite sex at home except spouse.
+* Do not wear revealing or inappropriate clothing in the presence of members of the opposite sex in your home, except for your spouse.
+
 ---
 
 ### **4. Swimming Outdoors**
 
-* Do not wear revealing outfits (one piece, two piece, brief only, etc.)
-* Advisable to wear rash guard
+* Avoid wearing revealing clothing such as one-piece or two-piece swimsuits, briefs, or other attire that exposes too much skin.
+* Wearing a rash guard is recommended.
 ---
