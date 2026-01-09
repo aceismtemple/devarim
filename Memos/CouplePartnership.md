@@ -1,4 +1,4 @@
-# Alternative for marriage contract
+# A. Alternative for marriage contract
 In view of the absence of divorce under the marriage contract, the parties have elected to enter into an alternative legal agreement.
 
 
@@ -91,11 +91,48 @@ If you want a *law-binding vow/contract for your relationship without marrying*,
 
 ---
 
-Links:
+# B. What if the couple decides to separate?
 
-[1]: https://lawshun.com/article/is-there-common-law-marriage-in-the-philippines?utm_source=chatgpt.com "Common-Law Marriage: Is It Recognized In The Philippines? | LawShun"
-[2]: https://www.lawyer-philippines.com/articles/livein-couple-cohabitation-agreement-philippine-law?utm_source=chatgpt.com "Live‑In Couple Cohabitation Agreement Philippine Law — Respicio & Co."
-[3]: https://www.genieai.co/en-ph/template/separation-agreement-for-unmarried-couples?utm_source=chatgpt.com "Separation Agreement For Unmarried Couples - Philippines | Genie AI"
-[4]: https://en.wikipedia.org/wiki/Right_to_Care_card?utm_source=chatgpt.com "Right to Care card"
-[5]: https://www.respicio.ph/commentaries/cohabitation-agreement-in-the-philippines?utm_source=chatgpt.com "Cohabitation Agreement in the Philippines"
-[6]: https://newsinfo.inquirer.net/1952180/bill-sets-civil-solidarity-pacts-for-live-in-unions?utm_source=chatgpt.com "Bill sets civil solidarity pacts for live-in unions"
+A **Cohabitation or Live-in Partnership Agreement** can generally be **terminated or “broken” if the couple decides to separate**, but there are some important nuances:
+
+---
+
+### 1. **Nature of the Agreement**
+
+* This agreement is a **private contract** between partners outlining rights, obligations, and arrangements regarding finances, property, and other matters during the relationship.
+* It is **not the same as marriage**, so it usually doesn’t involve divorce law, but contract law applies.
+
+---
+
+### 2. **Termination Conditions**
+
+* Most agreements include a **“termination clause”** specifying how it ends—often when:
+
+  * Partners separate or move apart permanently.
+  * Certain conditions are met (like sale of jointly owned property).
+* If the agreement is **silent on termination**, general contract principles apply: mutual consent can end it.
+
+---
+
+### 3. **Obligations After Separation**
+
+* Even after ending the agreement, any obligations outlined in it may remain enforceable. Examples:
+
+  * Division of jointly owned assets.
+  * Payment of shared debts.
+  * Support or reimbursement agreed upon in the contract.
+
+---
+
+### 4. **Legal Considerations**
+
+* In some countries (like the Philippines), cohabitation agreements are **recognized under civil contract law**, but enforcement may vary.
+* Any attempt to break the agreement **unilaterally without consent** could lead to a dispute in court.
+* It’s often recommended to **put the termination in writing** and have both parties sign it.
+
+---
+
+✅ **Summary:**
+Yes, a live-in partnership agreement can end if the couple separates, **especially if both agree**, but you need to handle it formally and honor any remaining obligations.
+
+---
