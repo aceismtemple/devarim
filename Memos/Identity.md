@@ -1,6 +1,6 @@
 ## Who are you? 
 
-> I'm a member of Saints of the Most High
+> I'm a member of the group named "Saints of the Most High"
 
 ## What are you?
 
