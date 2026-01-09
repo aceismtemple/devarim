@@ -1,4 +1,4 @@
-Good question—this comes up often when people compare **Noah** himself with **later Noahides**.
+Confusion comes up often when people compare **Noah** himself with **later Noahides** in the topic of burnt offering.
 
 ### 1. Did Noah offer burnt offerings?
 
