@@ -16,7 +16,7 @@ Appropriate in private space. Here’s a clear way to do it:
 
 * **Back straight but relaxed:** Avoid hunching.
 * **Head bowed slightly:** Shows humility.
-* **Hands:** fold together in front of you (not over the head).
+* **Hands:** fold/rest in front of you
 
 ### 4. **Heart and Mind**
 
