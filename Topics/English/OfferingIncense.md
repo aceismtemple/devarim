@@ -6,7 +6,7 @@ Here’s the breakdown according to mainstream Jewish (rabbinic) understanding:
 
 ## 🚫 What a Noahide should **not** do
 
-**Ritual incense burning as an act of worship to God**, modeled after Temple service or as a “sacrifice,” is generally prohibited.
+**Ritual incense burning as an act of worship to HaShem**, modeled after Temple service or as a “sacrifice,” is generally prohibited.
 
 Why?
 
@@ -24,7 +24,7 @@ Why?
 
 3. **Risk of unauthorized worship**
 
-   * Ritual incense can resemble idolatrous practices if done as a formal religious rite, even if the intent is to honor the One God.
+   * Ritual incense can resemble idolatrous practices if done as a formal religious rite, even if the intent is to honor the One Elohim.
 
 ---
 
@@ -37,7 +37,7 @@ A Noahide **may**:
   * For **fragrance**
   * For **relaxation or atmosphere**
   * As a **symbolic reminder** to pray (without declaring it an offering)
-* Pray directly to God **without** rituals resembling sacrifices
+* Pray directly to HaShem **without** rituals resembling sacrifices
 * Use incense in a **non-religious, non-ritual way**
 
 The key distinction is:
@@ -49,7 +49,7 @@ The key distinction is:
 
 ## 🕊️ Proper Noahide worship
 
-According to rabbinic guidance, Noahide service of God is best expressed through:
+According to rabbinic guidance, Noahide service of HaShem is best expressed through:
 
 * Prayer in one’s own words
 * Ethical living
@@ -103,11 +103,11 @@ Ritual incense = korban-like worship → **not permitted anywhere today**.
 
 ---
 
-## 3. Non-Jews are limited in *how* they may worship God
+## 3. Non-Jews are limited in *how* they may worship HaShem
 
 **Talmud: Sanhedrin 59a–60a**
 
-* Non-Jews are allowed to worship God,
+* Non-Jews are allowed to worship HaShem,
 * **but not through modes reserved for Israel**.
 * Performing a service defined as a Jewish avodah is considered **unauthorized worship**.
 
@@ -146,7 +146,7 @@ The Talmud establishes that:
 
 Therefore:
 
-> **A Noahide may not burn incense as a religious offering or ritual act of worship**, even to the One God.
+> **A Noahide may not burn incense as a religious offering or ritual act of worship**, even to the One Elohim.
 
 ---
 
