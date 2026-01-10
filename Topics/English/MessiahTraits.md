@@ -31,7 +31,7 @@ From a **traditional Jewish perspective**, Jesus is not regarded as the Messiah 
 
 ## 3. The Messiah Must Gather All Jews Back to the Land of Israel
 
-**Sources:** Isaiah 11:11–12; Deuteronomy 30:3–5
+**Sources:** Isaiah 11:11–12; Deuteronomy 30:3–5; Ezekiel 34 and 37 
 
 * A central messianic role is the **ingathering of all Jewish exiles** to Israel.
 * During and after Jesus’ lifetime:
