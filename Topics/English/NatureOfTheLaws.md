@@ -5,7 +5,7 @@ They state **moral boundaries**, not detailed case law.
 
 ## What the Ten Commandments *are*
 
-In Jewish and classical Christian understanding, the Ten Commandments (עֲשֶׂרֶת הַדִּבְּרוֹת, *Aseret ha-Dibrot*) are:
+In Jewish understanding, the Ten Commandments (עֲשֶׂרֶת הַדִּבְּרוֹת, *Aseret ha-Dibrot*) are:
 
 * **Foundational moral principles**
 * **Covenantal obligations**
@@ -77,7 +77,6 @@ The commandments aim to:
 That’s why later traditions expand them inward:
 
 * Judaism → safeguards (*fences around the Torah*)
-* Christianity → inner intention (e.g., anger, lust)
 * Both see the commandments as **ethical roots**, not technical loopholes
 
 ---
