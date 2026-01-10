@@ -244,7 +244,7 @@ Below are **additional Tanakh (Hebrew Bible) prophecies** that **traditional Jud
 
 ---
 
-### 📖 **Malachi 3:22 (4:4 in Christian numbering)**
+### 📖 **Malachi 3:22**
 
 > “Remember the Torah of Moses, My servant… for all Israel.”
 
