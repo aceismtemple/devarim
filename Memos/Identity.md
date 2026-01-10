@@ -13,6 +13,7 @@
 * ✅ One Elohim 
 * ✅ Covenant with **Noah**, not Sinai
 * ✅ Authority comes from **Torah**, not independent philosophy
+* ✅ Jews (Orthodox Judaism) are custodians of the knowledge of the Noahide laws
 
 ## Important boundaries
 
