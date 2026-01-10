@@ -276,3 +276,8 @@ Below are **additional Tanakh (Hebrew Bible) prophecies** that **traditional Jud
 | Torah upheld         | Isaiah 42:21  | ❌                    |
 
 ---
+
+
+## Sage counsel
+
+> Following a false messiah would create confusion and divide us. It would undermine our commitment to honoring Orthodox Judaism. It would lead us away from truth toward deception. I urge you not to get involved with the false messiah.
