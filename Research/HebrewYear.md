@@ -88,6 +88,9 @@ This is why modern scholars view it as a **theological/liturgical** calendar rat
 
 ---
 
+### Abraham's the lineage:
+Noah → Shem → Arpachshad → Shelah → Eber → Peleg → Reu → Serug → Nahor → Terah → Abraham (originally called Abram)
+
 ## Events from Abraham onwards:
 
 ## **Major Biblical Events in Hebrew Calendar Years (AM = Anno Mundi)**
