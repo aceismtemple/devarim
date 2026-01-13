@@ -19,7 +19,7 @@ Ang kamangyan ay hindi ideya ng tao—ito ay **utos ni HaShem**. Ipinapakita nit
 
 ## **II. Ang Kamangyan ay Sumisimbolo ng Panalangin**
 
-> *“Ang aking dalangin ay maging kamangyan sa harap mo.”*
+> *“Ang aking dalangin ay maging kamangyan sa harap Mo.”*
 > — **Awit 141:2**
 
 Sa Lumang Tipan, ang kamangyan ay larawan ng **panalangin ng bayan ni HaShem**. Kapag sinusunog ang kamangyan, ang bango nito ay umaakyat—gaya ng panalangin na umaakyat sa langit.
