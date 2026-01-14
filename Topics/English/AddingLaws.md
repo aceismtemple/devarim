@@ -1,4 +1,4 @@
-**The sage may voluntarily take on more rules or practices than the core seven**, but with three key qualifications:
+**The Head Elder may voluntarily take on more rules or practices than the core seven**, but with three key qualifications:
 
 1. The **extra rules must be clearly understood as personal or communal enhancements**, not as additional *Divine commandments* that every Gentile is obligated to keep.  
 2. He may **not create or imply a new binding religious covenant** that parallels or alters the Torah’s covenant with Israel (e.g., inventing a “new 8th law” revealed by HaShem to Noahides).  

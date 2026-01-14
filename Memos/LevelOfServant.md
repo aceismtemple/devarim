@@ -22,7 +22,7 @@ The Worker is responsible for faithful labor and service within the community. T
 
 ---
 
-## **2. Elder (זקן – *Zaken*)**
+## **2. Elder (זקן – zken)**
 
 ### **Role Description**
 
@@ -48,11 +48,11 @@ The Elder serves as a guardian of wisdom and order within the community. Elders 
 
 ---
 
-## **3. Sage (חכם – *Ḥakham*) **
+## **3. Head Elder (רֹאשׁ הַזְּקֵנִים (rosh hazkenim) **
 
 ### **Role Description**
 
-The Sage is entrusted with the teaching, interpretation, and preservation of wisdom. This role focuses on deep understanding of Scripture, discernment, and instruction. Gives vision, doctrine, and overall direction.
+The Head Elder is entrusted with the teaching, interpretation, and preservation of wisdom. This role focuses on deep understanding of Scripture, discernment, and instruction. Gives vision, doctrine, and overall direction.
 
 ### **Requirements**
 

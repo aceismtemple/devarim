@@ -8,6 +8,6 @@ This is where it gets more nuanced. The seven Noahide laws include a prohibition
 
 Some authorities hold that if a non-Jew didn't personally engage in the idolatrous act, merely eating food that someone else offered to an idol wouldn't violate the Noahide prohibition against idolatry. Others take a stricter view.
 
-## Sage counsel
+## Head Elder counsel
 
 > The group shouldn't eat food offered to idols.

@@ -146,7 +146,7 @@ There is no direct evidence that the New Testament was fabricated by the Roman E
 
 ---
 
-## Sage counsel
+## Head Elder counsel
 
 > I recommend against engaging with the New Testament, as its content has significant potential to generate divisive interpretations and conceptual ambiguity within our community. The teachings contained herein risk creating theological inconsistencies and fragmenting our collective understanding. Therefore, I advise refraining from internalizing or disseminating the doctrines presented in this work.
 
