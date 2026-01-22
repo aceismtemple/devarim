@@ -2,7 +2,9 @@
 
 ---
 
-### Sa Isaiah 53:2, may isang halaman na tumutubo mula sa tuyong lupa. Basahin natin:
+### Sa Isaiah 53:2, may isang halaman na tumutubo mula sa tuyong lupa. 
+
+Basahin natin:
 
 > **Isaiah 53:2** –
 > “Sapagka’t siya’y tutubo sa harap niya na parang murang halaman, at parang ugat na mula sa tuyong lupa; siya’y walang anyo ni kagandahan; at pagka ating nakita siya, ay walang kagandahan na ating ikalulugod sa kaniya.”
